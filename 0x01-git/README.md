@@ -1,1 +1,1 @@
-My first folder
+Starting to code today, so cool
